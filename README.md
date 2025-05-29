@@ -1,5 +1,7 @@
 # How Much Does It Cost to Start an LLC? State-by-State
 
+**Disclaimer: we earn commissions when you shop through the links below**
+
 Starting a Limited Liability Company (LLC) is a popular choice for structuring a business in the U.S. due to its flexibility and liability protection.
 
 While the process is straightforward, LLC filing fees vary significantly by state.
